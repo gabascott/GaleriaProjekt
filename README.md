@@ -1,1 +1,1 @@
-# GaleriaProjekt
+Somoskői Gábor
